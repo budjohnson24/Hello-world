@@ -1,1 +1,1 @@
-# Hello-world
+# Hello-world  I am a 74 YO retired pharmacist who used to be fairly good programming in Pascal but have since lost coding skills and would like to be able to do things like create a web page.  I have eaten plenty of tacos but never on the moon.
